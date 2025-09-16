@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # About Me:
-I'm a Professional life **raw-dogger**<br><br>**What Do I Do?**<br>- my best<br><br>**Let's Collaborate**<br>If you're a proper coder, designer, or just make cool stuff happen **hit me up**.<br>I will bring my weaponized incompetence the whole ride.<br><br>**Fun Fact**<br>Grinding to 10k trophies
+I'm a Professional life **raw-dogger**<br><br>**What Do I Do?**<br>my best<br><br>**Let's Collaborate**<br>If you're a proper coder, designer, or just make cool stuff happen **hit me up**.<br>I will bring my weaponized incompetence the whole ride.<br><br>**Fun Fact**<br>Grinding to 10k trophies
 
 
 ## Socials:
